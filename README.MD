@@ -1,0 +1,1 @@
+Introduce manga about Kattobi Itto
